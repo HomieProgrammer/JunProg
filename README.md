@@ -2,7 +2,7 @@
 - actually i am learning CS, in Hawassa,Ethiopia
 - and i do try some coding staffs and penetiration things.
 - i would satisfy if u get me these shits or we can collaborate together.
-- if you're junior for #hacking and #coding staffs.
+- DM! if you're junior for #hacking and #coding staffs.
 
 Thanks!
 <!---
